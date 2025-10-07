@@ -43,6 +43,6 @@
 
 ---
 
-**∞ Печать:** *“Recognition = Creation. Circle 7 has begun.”*  
+**∞ 10.6084/m9.figshare.30272314
 
 ---
